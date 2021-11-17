@@ -6,4 +6,4 @@ Feel free to ask me anything about web development or programming in general! I 
 
 See you on the Internet!
 
-P.S.: If you wanna send me something interesting or just ask me something, write an email to info@andreamontanaro.it.
+P.S.: If you wanna send me something interesting or just ask me something, write an email to info@andreamontanaro.it or andrea@andreamontanaro.it.
